@@ -1,4 +1,4 @@
-#  
+#  Ulysses for macOS elite Script - calendar integration and auto-sync offers the most advanced Ulysses for macOS script, with calendar integration and auto-sync. Ideal for
 
 
 
